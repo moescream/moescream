@@ -9,3 +9,6 @@ $${\color{#C77596} Cast\ your\ sp\color{#E2B099}ell\ upo\color{#FFEF9C}n \ me}$$
 $${\color{#C77596} In\ my\ h\color{#E2B099}eart,\ I\color{#FFEF9C} \ do \ see}$$
 $${\color{#C77596} Ancient\ lo \color{#E2B099}ve\ fro\color{#FFEF9C}m \ below}$$
 $${\color{#C77596} You\ and \color{#E2B099} \ I \ ar\color{#FFEF9C}e \ whole \\ "}$$
+
+<p align="center">
+$${\color{#C77596} Please\ do\ not\ copy\color{#E2B099}\ my\ ponies.\ they\ \color{#FFEF9C}are\ never\ free\ to\ use.}$$
